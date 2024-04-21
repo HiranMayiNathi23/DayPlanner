@@ -16,5 +16,7 @@
 
 ![Screenshot (689)](https://github.com/HiranMayiNathi23/DayPlanner/assets/167151197/aee6158b-48b9-4199-9f69-13b91a983e28)
 
+https://github.com/HiranMayiNathi23/DayPlanner/assets/167151197/a2d1215a-92d3-42c8-a601-7b37df572a39
+
 
 
