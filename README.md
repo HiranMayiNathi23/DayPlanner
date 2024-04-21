@@ -6,4 +6,4 @@
 
 ![Screenshot (684)](https://github.com/HiranMayiNathi23/DayPlanner/assets/167151197/1c212b10-aed1-4e18-b808-5fb7d14b212c)
 
-
+![Screenshot (685)](https://github.com/HiranMayiNathi23/DayPlanner/assets/167151197/b2d4d120-98a7-44c9-a525-4d4a3d78fe4c)
